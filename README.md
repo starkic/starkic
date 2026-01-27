@@ -11,7 +11,7 @@
 
 <br />
 
-[🇸​ 🇹​ 🇷​ 🇦​ 🇼​ 🇵​ 🇦​ 🇬​ 🇪​](https://starkreactor.straw.page/)ㅤ.ㅤ[🇦​ 🇹​ 🇦​ 🇧​ 🇴​ 🇴​ 🇰​](https://starked.atabook.org/)ㅤ.ㅤ[🇵​ 🇷​ 🇴​ 🇳​ 🇴​ 🇺​ 🇳​ 🇸](https://en.pronouns.page/@starked)ㅤ.ㅤ[ᴄ ᴀ ʀ ʀ ᴅ](https://starks-files.carrd.co/)
+[🇸​ 🇹​ 🇷​ 🇦​ 🇼​ 🇵​ 🇦​ 🇬​ 🇪​](https://starkic.straw.page/)ㅤ.ㅤ[🇦​ 🇹​ 🇦​ 🇧​ 🇴​ 🇴​ 🇰​](https://starkic.atabook.org/)ㅤ.ㅤ[🇵​ 🇷​ 🇴​ 🇳​ 🇴​ 🇺​ 🇳​ 🇸](https://en.pronouns.page/@starkic)ㅤ.ㅤ[ᴄ ᴀ ʀ ʀ ᴅ](https://starks-files.carrd.co/)
 ㅤ
 <br />
 
