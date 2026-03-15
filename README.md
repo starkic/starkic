@@ -17,7 +17,7 @@
 
 <br />
 
-<img width="350" height="262" alt="hotrod" src="https://github.com/starkic/starkic/blob/383913e70df5eb8216583cf35f868719d394fd75/hotrod.png" />
+<img width="200" height="150" alt="hotrod" src="https://github.com/starkic/starkic/blob/383913e70df5eb8216583cf35f868719d394fd75/hotrod.png" />
 
 <br />
 
