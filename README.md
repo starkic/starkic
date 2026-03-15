@@ -17,7 +17,7 @@
 
 <br />
 
-![av1 s](https://github.com/user-attachments/assets/580eac46-5678-48ac-a16a-50940d612c07)
+<img width="350" height="262" alt="hotrod" src="https://github.com/starkic/starkic/blob/383913e70df5eb8216583cf35f868719d394fd75/hotrod.png" />
 
 <br />
 
