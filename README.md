@@ -11,13 +11,19 @@
 
 <br />
 
+<br />
+
 [🇸​ 🇹​ 🇷​ 🇦​ 🇼​ 🇵​ 🇦​ 🇬​ 🇪​](https://starkic.straw.page/)ㅤ.ㅤ[🇦​ 🇹​ 🇦​ 🇧​ 🇴​ 🇴​ 🇰​](https://starkic.atabook.org/)ㅤ.ㅤ[🇵​ 🇷​ 🇴​ 🇳​ 🇴​ 🇺​ 🇳​ 🇸](https://en.pronouns.page/@starkic)ㅤ.ㅤ[ᴄ ᴀ ʀ ʀ ᴅ](https://starks-files.carrd.co/)
 ㅤ
 <br />
 
 <br />
 
-<img width="200" height="150" alt="hotrod" src="https://github.com/starkic/starkic/blob/383913e70df5eb8216583cf35f868719d394fd75/hotrod.png" />
+<br />
+
+![av1 s](https://github.com/user-attachments/assets/580eac46-5678-48ac-a16a-50940d612c07)
+
+<br />
 
 <br />
 
