@@ -34,3 +34,17 @@
 <br />
 
 
+<details>
+  <summary><ins>‎</ins></summary>
+
+  <div align="center">
+    <p>
+      
+im sorry that my github is ignorant and very aggressive, i wont push you or anything to not like tony stark or i need you to hate him just so he could be mine and a million more things like that. im just insecure about him, yet, i dont want anyone to hate me from my cover.
+    
+      
+  im friendly, but this github is about expressing the (major) possessive part of me; again, im sorry about giving the wrong impression.
+  
+  </p>
+  </div>
+</details>
