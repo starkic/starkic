@@ -40,10 +40,7 @@
   <div align="center">
     <p>
       
-im sorry that my github is ignorant and very aggressive, i wont push you or anything to not like tony stark or i need you to hate him just so he could be mine and a million more things like that. im just insecure about him, yet, i dont want anyone to hate me from my cover.
-    
-      
-  im friendly, but this github is about expressing the (major) possessive part of me; again, im sorry about giving the wrong impression.
+<sub> im sorry that my links seem ignorant and very aggressive, **_im friendly!!!_** this github is built on the foundation of me being possessive, i am, but if you're a double, i'll only have distance with you or hide you out of my uncomfort. don't take it to heart, im sorry, its not you. /pos
   
   </p>
   </div>
