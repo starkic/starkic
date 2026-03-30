@@ -13,7 +13,7 @@
 
 <br />
 
-[🇸​ 🇹​ 🇷​ 🇦​ 🇼​ 🇵​ 🇦​ 🇬​ 🇪​](https://starkic.straw.page/)ㅤ.ㅤ[🇦​ 🇹​ 🇦​ 🇧​ 🇴​ 🇴​ 🇰​](https://starkic.atabook.org/)ㅤ.ㅤ[🇵​ 🇷​ 🇴​ 🇳​ 🇴​ 🇺​ 🇳​ 🇸](https://en.pronouns.page/@starkic)ㅤ.ㅤ[ᴄ ᴀ ʀ ʀ ᴅ](https://starks-files.carrd.co/)
+[🇸​ 🇹​ 🇷​ 🇦​ 🇼​ 🇵​ 🇦​ 🇬​ 🇪​](https://starkic.straw.page/)ㅤ.ㅤ[🇦​ 🇹​ 🇦​ 🇧​ 🇴​ 🇴​ 🇰​](https://starkic.atabook.org/)ㅤ.ㅤ[🇵​ 🇷​ 🇴​ 🇳​ 🇴​ 🇺​ 🇳​ 🇸](https://en.pronouns.page/@starkic)ㅤ.ㅤ[🇬 ​🇺 ​🇳 ​🇸​](https://guns.lol/starkic)
 ㅤ
 <br />
 
