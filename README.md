@@ -7,7 +7,7 @@
 > <sub> _You can take away my house, all my tricks and toys, but one thing you can't take away?_
 
 
-<img width="2662" height="1459" alt="banner" src="https://github.com/user-attachments/assets/1e7fe771-f8c2-404c-bcad-c0594df42734" />
+<img width="2662" alt="banner" src="https://github.com/user-attachments/assets/1e7fe771-f8c2-404c-bcad-c0594df42734" />
 
 <br />
 <br />
