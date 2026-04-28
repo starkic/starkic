@@ -41,7 +41,7 @@
   <div align="center">
     <p>
       
-<sub> im sorry that my links seem ignorant and very aggressive, **_im friendly !!!_** this github is built on the foundation of me being possessive, which i am, therefore if you're a double, i'll have some distance with you or hide you out of my uncomfort. don't take it to heart, im truly sorry, its not you .  /pos
+<sub> im sorry that my links seem ignorant and very aggressive, **_im friendly !!!_** this github is built on the foundation of me being possessive of <ins>*iron man*</ins>, which i am, therefore if you're a double, i'll have some distance with you or hide you out of my uncomfort. don't take it to heart, im truly sorry, its not you .  /pos
 
 <sub> whispers are open, friend requests are open, ships are open !
   
