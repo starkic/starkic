@@ -1,6 +1,6 @@
 <div align="right">
   
-![tipsy](https://github.com/user-attachments/assets/2cbeb6f9-7e44-4238-ae07-ab870d08b8d2) ![](https://komarev.com/ghpvc/?username=starc-reactor&color=901c1c&label=MESSAGES//IGNORED&style=plastic)  
+![tipsy](https://github.com/user-attachments/assets/2cbeb6f9-7e44-4238-ae07-ab870d08b8d2) ![](https://komarev.com/ghpvc/?username=starc-reactor&color=51769C&label=MESSAGES//IGNORED&style=plastic)  
 
 <div align="center">  
   
@@ -12,9 +12,9 @@
 <br />
 <br />
 
-<sub>$\color{#424D5E}{\textsf{links wip :(}}$‎‎<sub/>
+<sub>$\color{#424D5E}{\textsf{rmkng straw}}$‎‎<sub/>
 
-[🇦​ 🇹​ 🇦​ 🇧​ 🇴​ 🇴​ 🇰​](https://starkic.atabook.org/)ㅤ.ㅤ[🇵​ 🇷​ 🇴​ 🇳​ 🇴​ 🇺​ 🇳​ 🇸](https://en.pronouns.page/@starkic)ㅤ.ㅤ[🇬 ​🇺 ​🇳 ​🇸​](https://guns.lol/starkic)
+<sub> [新bk​](https://starkic.atabook.org/)ㅤㅤㅤㅤ.ㅤㅤㅤㅤ[rntry](https://rentry.co/starkic)ㅤㅤㅤㅤ.ㅤㅤㅤㅤ[prns](https://en.pronouns.page/@starkic)ㅤㅤㅤㅤ.ㅤㅤㅤㅤ[guns​](https://guns.lol/starkic)
 ㅤ
 <br />
 
