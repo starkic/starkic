@@ -1,6 +1,6 @@
 <div align="right">
   
-![tipsy](https://github.com/user-attachments/assets/2cbeb6f9-7e44-4238-ae07-ab870d08b8d2) ![](https://komarev.com/ghpvc/?username=starc-reactor&color=51769C&label=MESSAGES//IGNORED&style=plastic)  
+![tipsy](https://github.com/user-attachments/assets/2cbeb6f9-7e44-4238-ae07-ab870d08b8d2) ![](https://komarev.com/ghpvc/?username=starc-reactor&color=237EEE&label=MESSAGES//IGNORED&style=plastic)  
 
 <div align="center">  
   
@@ -14,7 +14,7 @@
 
 <sub>$\color{#424D5E}{\textsf{rmkng straw}}$‎‎<sub/>
 
-<sub> [新bk​](https://starkic.atabook.org/)ㅤㅤㅤㅤ.ㅤㅤㅤㅤ[rntry](https://rentry.co/starkic)ㅤㅤㅤㅤ.ㅤㅤㅤㅤ[prns](https://en.pronouns.page/@starkic)ㅤㅤㅤㅤ.ㅤㅤㅤㅤ[guns​](https://guns.lol/starkic)
+<sub> [**新**bk​](https://starkic.atabook.org/)ㅤㅤㅤㅤㅤ.ㅤㅤㅤㅤㅤ[𝖗ntry](https://rentry.co/starkic)ㅤㅤㅤㅤㅤ.ㅤㅤㅤㅤㅤ[𝖕rns](https://en.pronouns.page/@starkic)ㅤㅤㅤㅤㅤ.ㅤㅤㅤㅤㅤ[𝖌uns​](https://guns.lol/starkic)
 ㅤ
 <br />
 
@@ -41,9 +41,9 @@
   <div align="center">
     <p>
       
-<sub> im sorry that my links seem ignorant and very aggressive, **_im friendly !!!_** this github is built on the foundation of me being possessive of <ins>*iron man*</ins>, which i am, therefore if you're a double, i'll have some distance with you or hide you out of my uncomfort. don't take it to heart, im truly sorry, its not you .  /pos
+<sub> im sorry that my links seem ignorant and very aggressive, **_im friendly !!!_** my sites are built on the foundation of me being possessive of <ins>*iron man*</ins>, which i am, therefore if you're a double, i'll have some distance with you or hide you out of my discomfort. don't take it to heart, im truly sorry, its not you .  /pos
 
-<sub> whispers are open, friend requests are open, ships are open !
+<sub> *whispers are open, friend requests are open, ships are open !*
   
   </p>
   </div>
