@@ -14,7 +14,7 @@
 
 <sub>$\color{#424D5E}{\textsf{rmkng straw}}$‎‎<sub/>
 
-<sub> [**新**bk​](https://starkic.atabook.org/)ㅤㅤㅤㅤㅤ.ㅤㅤㅤㅤㅤ[𝖗ntry](https://rentry.co/starkic)ㅤㅤㅤㅤㅤ.ㅤㅤㅤㅤㅤ[𝖕rns](https://en.pronouns.page/@starkic)ㅤㅤㅤㅤㅤ.ㅤㅤㅤㅤㅤ[𝖌uns​](https://guns.lol/starkic)
+<sub> [***新***bk​](https://starkic.atabook.org/)ㅤㅤㅤㅤㅤ.ㅤㅤㅤㅤㅤ[𝒓ntry](https://rentry.co/starkic)ㅤㅤㅤㅤㅤ.ㅤㅤㅤㅤㅤ[𝒑rns](https://en.pronouns.page/@starkic)ㅤㅤㅤㅤㅤ.ㅤㅤㅤㅤㅤ[𝒈uns​](https://guns.lol/starkic)
 ㅤ
 <br />
 
