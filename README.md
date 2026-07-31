@@ -1,6 +1,6 @@
 <div align="right">
   
-![tipsy](https://github.com/user-attachments/assets/2cbeb6f9-7e44-4238-ae07-ab870d08b8d2) ![](https://komarev.com/ghpvc/?username=starc-reactor&color=237EEE&label=MESSAGES//IGNORED&style=plastic)  
+![tipsy](https://github.com/user-attachments/assets/2cbeb6f9-7e44-4238-ae07-ab870d08b8d2) ![](https://komarev.com/ghpvc/?username=starc-reactor&color=237EEE&label=INBOX&style=plastic)  
 
 <div align="center">  
   
