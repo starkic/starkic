@@ -4,7 +4,7 @@
 
 <div align="center">  
   
-> <sub> _You can take away my house, all my tricks and toys, but one thing you can't take away?_
+> <sub> [![Typing SVG](https://readme-typing-svg.demolab.com?font=Libre+Barcode+128+Text&size=30&duration=6000&pause=1000&color=2371D1&width=510&lines=You+can+take+away+my+house%2C+all+my+tricks+and+toys%2C;but+one+thing+you+can't+take+away%3F)](https://git.io/typing-svg)
 
 
 <img width="2662" alt="banner" src="https://github.com/user-attachments/assets/1e7fe771-f8c2-404c-bcad-c0594df42734" />
