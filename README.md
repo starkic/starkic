@@ -2,10 +2,11 @@
   
 ![tipsy](https://github.com/user-attachments/assets/2cbeb6f9-7e44-4238-ae07-ab870d08b8d2) ![](https://komarev.com/ghpvc/?username=starc-reactor&color=237EEE&label=ㅤㅤ1NB0Xㅤㅤ&style=plastic)  
 
-<div align="center">  
+<div align="left">  
   
-> <sub> [![Typing SVG](https://readme-typing-svg.demolab.com?font=Libre+Barcode+128+Text&size=30&duration=6000&pause=1000&color=2371D1&width=510&lines=You+can+take+away+my+house%2C+all+my+tricks+and+toys%2C;but+one+thing+you+can't+take+away%3F)](https://git.io/typing-svg)
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=Libre+Barcode+128+Text&size=30&duration=6000&pause=1000&color=2371D1&width=510&lines=You+can+take+away+my+house%2C+all+my+tricks+and+toys%2C;but+one+thing+you+can't+take+away%3F)](https://git.io/typing-svg)
 
+<div align="center"> 
 
 <img width="2662" alt="banner" src="https://github.com/user-attachments/assets/1e7fe771-f8c2-404c-bcad-c0594df42734" />
 
